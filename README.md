@@ -23,7 +23,7 @@ https://www.image-line.com/fl-studio-download/
 Mods I took voices from:
 (Coming soon cuz im tired rn, just play every fnf mod)
 
-BirbyJaySusday Discord:
+BirbyJaySusday Discord: https://discord.gg/N2dBRJaxtr
 
 
 # Midis coming soon
