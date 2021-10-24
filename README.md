@@ -8,9 +8,14 @@ https://github.com/GenoX-Fome/funkin-utau
 
 # How to use this (for fl studio lmao):
 1: Find a WAV of ur choice
+
 2: Throw it in the funni directwave
+
 3: Mess around
+
 4: Have Fun (If ur like me and enjoy making covers)
+
+# Download/Credit stuff
 
 Fl studio download:
 https://www.image-line.com/fl-studio-download/
